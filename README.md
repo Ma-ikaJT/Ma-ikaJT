@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Ma-ikaJT
+- 👋 Hi, I’m @Variorae
 - 👀 I’m interested in computers and game design.
 - 🌱 I’m currently learning game design at DigiPen institute of technology.
 - 📫 You can reach me at mekskw@gmail.com or u/sonic_hedgekin on reddit.
